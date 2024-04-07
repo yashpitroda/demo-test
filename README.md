@@ -1,3 +1,3 @@
 # demo-test
 
-made new chanes
+made new chan
