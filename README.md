@@ -1,6 +1,6 @@
 # demo-test
 
 made new chan
-oh amcd
+oh man
 oh a
 HI THERE
